@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @BindasJP 
+- 👀 I’m interested in all electronics consumer and industrial projects
+-
